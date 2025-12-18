@@ -1,2 +1,2 @@
 # Aac-project-
-Interactive aac for non verbal 
+non provit aac for non verbal kids
